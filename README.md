@@ -14,5 +14,5 @@ felipe.......@gmail.com
 
 @felipe
 
-![descrição do GIF](link GIF do Tenor)
+
 
