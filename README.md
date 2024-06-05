@@ -1,5 +1,5 @@
-# felip3flasino
-f
+# felip3flasino 🐱‍👤👌
+👍🐱‍👤🐱‍🏍
 ### Boas vindas ao meu perfil :blue_heart
 
 Meu nome é Felipe Flausino
@@ -10,9 +10,9 @@ Meu nome é Felipe Flausino
 
 ### Você pode entrar em contato comigo :mailbox
 
-felipe.......@gmail.com
+felipeflandrade2018@gmail.com
 
-@felipe
+@felipe_flausio8
 
 ![](https://media.tenor.com/xo_VcKlhZiYAAAAM/vinijr.gif)
 
